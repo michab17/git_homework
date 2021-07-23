@@ -6,6 +6,6 @@
 
 Shout out to my girlfriend Jen
 
-New Thoughts:
+New Thought:
 
 1. I need to work on my handwriting
