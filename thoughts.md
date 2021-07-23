@@ -5,3 +5,8 @@
 2. ABSOLUTELY NO PROCRASTINATION
 
 Shout out to my girlfriend Jen
+
+New Thoughts:
+
+1. I need to work on my handwriting
+2. Everything is going well so far, I just cant get complacent 
